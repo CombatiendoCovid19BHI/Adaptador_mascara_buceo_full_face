@@ -6,3 +6,7 @@ Se le puede dar asistencia respiratoria no invasiva y pueden trasladarse, cuidan
 
 Estas máscaras también sirven para CPAP y para desplazar pacientes sin contaminar
 con la posibilidad de incorporar diferentes tipos de filtros y válvulas direccionales.
+
+IMPORTANTE!!!
+
+SU USO ES BAJO SU PROPIO RIESGO! Y RESPONSABILIDAD!
