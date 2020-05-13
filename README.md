@@ -18,3 +18,12 @@ Bruno Andrenacci
 Luis Maenza, 
 Rodrigo Iglesias Pin, 
 Ma. Eloísa Tourret.
+
+
+➡️ Más info:
+
+https://drive.google.com/open?id=17ZnyMLbQgRydvp386TuqGUQW4C1mGblkWJESTwSCxvc
+
+➡️ INGRESÁ A NUESTRO FACEBOOK Y ENTERATE DE TODOS NUESTROS PROYECTOS!
+
+https://www.facebook.com/CombatiendoCovid19BHI/
